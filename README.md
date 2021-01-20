@@ -1,2 +1,1 @@
-# It is of a oreo cake which is simple to make by oven 
-# WARNING! do not try if u do not have oven!!
+crush the oreoes,put the hot milk whisk it you will get the batter then put the batter in the baking tray,put it in the oven then after a lot of minutes take it out wait for few minutes to cool it down,take the cake out of the baking tray then add decorations on it and then you can serve it.
